@@ -1,4 +1,4 @@
-# Ganna Plyaskova #
+# Ganna Plyashkova #
 ---
 ### telephone number: +375295639930 ###
 ### email: nysha86@list.ru
